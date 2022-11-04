@@ -8,5 +8,5 @@ This list started as a countereaction to an observance of trend of increasing fo
 
 > How to make advanced technology as calm as rain against your window when the power is out?
 
-# Ideas
+# Resources
 
