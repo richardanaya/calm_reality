@@ -8,3 +8,6 @@ This list started as a countereaction to an observance of trend of increasing fo
 
 # Resources
 
+## Books
+
+[Calm Technology](https://www.amazon.com/Calm-Technology-Principles-Patterns-Non-Intrusive/dp/1491925884) by Amber Case
