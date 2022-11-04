@@ -6,7 +6,7 @@ A list of resources dedicated toward those seeking a calm existance with cutting
 
 This list started as a countereaction to an observance of trend of increasing forms of stimulating technology.  A transition of market interest from computers, to phones, to virtual reality, to augmented reality, to mixed reality.  I felt unsatisfied with the direction of technology leading me away from a life with a calm reality.  I hope this resource can help you find the quietude your mind needs to enjoy all life has to value. - Richard
 
-> How to make technology as calm as rain against your window when the power is out?
+> How to make advanced technology as calm as rain against your window when the power is out?
 
 # Ideas
 
